@@ -1,1 +1,0 @@
-Link do trabalho no onshape: https://cad.onshape.com/documents/5298b93158daadd899a581e6/w/15fe895167ab5752dab5bdd9/e/d1613d79ba50c4e67861146e?renderMode=0&uiState=67f353006ad06c339e96dd49
